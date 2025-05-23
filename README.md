@@ -1,0 +1,1 @@
+# Covid-19-trends-and-Stock-Market-Patterns
